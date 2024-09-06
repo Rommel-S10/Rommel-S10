@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rommel-S10
-- 👀 I’m interested in Software software engineering
+- 👀 I’m interested in software engineering
 - 🌱 I’m currently learning Python and C++
 - 📫 How to reach me rommelariel10@gmail.com
 - 😄 Pronouns: He/Him
