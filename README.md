@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rommel-S10
+- 👀 I’m interested in Software software engineering
+- 🌱 I’m currently learning Python and C++
+- 📫 How to reach me rommelariel10@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love talking about Theology and Philosophy. In order to avoid misunderstand, we must listen with intelligence first.
